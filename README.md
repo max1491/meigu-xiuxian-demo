@@ -1,5 +1,5 @@
 # 美谷修仙傳
 
-本頁僅為轉址。正式網址：https://richbaba.com/game/
+本頁僅為轉址。正式網址：https://mastermeigu.com/
 
 © 2026 小M老師《美谷修仙傳》版權所有，保留一切權利。
